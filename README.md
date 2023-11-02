@@ -1,0 +1,2 @@
+# jualdiri
+ini rahasia
